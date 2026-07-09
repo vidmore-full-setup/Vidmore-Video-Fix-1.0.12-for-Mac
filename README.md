@@ -1,0 +1,1 @@
+# Vidmore-Video-Fix-1.0.12-for-Mac
